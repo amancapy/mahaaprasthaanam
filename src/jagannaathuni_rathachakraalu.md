@@ -38,14 +38,14 @@ The World-father's chariot wheels!\
 Chariot wheels,\
 chariot wheels,\
 chariot wheels, chariot wheels,\
-they're coming they're coming!\
+they're coming they're coming!
 
 O downtrodden!\
 O fallen\
 In the sky-path* మొయిళారి\
 those embarked\
 chariot wheels, chariot wheels,\
-they're coming they're coming!\
+they're coming they're coming!
 
 The Simhaachalam has shifted,\
 the Himaalayam has melted,\
@@ -79,7 +79,7 @@ In the cold తెగనవసి smoulder your miseries, your tales\
 to my understanding they do come\
 O downtrodden!\
 O fallen\
-O my swindled little brothers!\
+O my swindled little brothers!
 
 For your sake the pen grasped,\
 along the sky's paths\
