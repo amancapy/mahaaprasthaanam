@@ -9,7 +9,7 @@ Let us go, let us go higher, higher!
 
 Stomping step,\
 singing the word,\
-roaring our inner hearts out--\
+roaring our inner hearts* హృదంతరాళం out--\
 come, let us go,\
 do you not hear\
 the other world's watefall?
@@ -37,7 +37,7 @@ hara! hara! hara! hara!\
 harom hara!" and stir!\
 Another world,\
 another world,\
-abounds the whole Earth!\
+abounds through the whole Earth!\
 Go forth!\
 Go shoving!\
 Raise roar like stormwind!\
@@ -48,13 +48,13 @@ Go,\
 go,\
 go forth!\
 Do you not see the other world's\
-Radiant burning sacred flame?
+Radiant* కణకణ burning sacred flame?
 
 Rising, rising, rising, they fall\
 eight million mountains!\
 Churning, churning, churning, the seas\
 they dance a catastrophic deluge!\
-Sizzling boiling grease? Not so\
+Sizzling boiling tar? Not so\
 A lake of hot blood!\
 Like Shivasamudram,\
 like the Niagara\
@@ -62,7 +62,7 @@ run! Run forth!\
 Go forth!\
 Go shoving!\
 The other world's brassen kettledrum\
-endlessly it blares!
+unceasingly it blares!
 
 Like serpents,\
 like wilddogs,\

@@ -47,7 +47,7 @@ a bridge of swords to time.
 
 In టంధయుగం of ignorance,\
 in hunger, in excitement--\
-by unknown great forces\
+by unknown forces great\
 driven, humans--
 
 that all is their ingenuity,\
@@ -61,8 +61,8 @@ In reciprocal skirmishes\
 of forces was history born.
 
 A timeless deceit,\
-the inhumanities of the strong,\
-the plottings of the wealthy,\
+the inhumanities of the powerful,\
+the plottings of the opulent,\
 Further still?! No longer will they sustain.
 
 A person another person,\
@@ -92,10 +92,10 @@ not these, man, are history's essence.
 
 In history's dark corner,\
 fallen to the depths, unseen,\
-all of these tales we now need!\
+all of those tales we now need!\
 Truth that evades concealing.
 
-In the Nile-valley civilization,\
+In the Nile-river civilization,\
 of what sort was the commonman's life?\
 To construct the Taj Mahal,\
 who were the laborers who lifted the stones?
@@ -118,4 +118,4 @@ what great object did it achieve?
 What sculpture? What literature?\
 What science? What song?\
 To what lights, this journey?\
-Which dawn? Which great victory?
+Which dawn? Which great victory* దిగ్విజయం?

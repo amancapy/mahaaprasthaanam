@@ -4,13 +4,13 @@ O downtrodden!\
 O fallen\
 O sorrow-serpent bitten!\
 Of lives charred,\
-gone worthless,\
+of no import,\
 in Lord Misfortune's chariot wheels'\
 spokes fallen and crushed\
 O helpless!\
 O lowly!\
 Sans sustenance, sans shelter\
-O birds! O wayfarers!\
+O birds! O vagabonds!\
 పరిచ్యుతులు by the comfortable,\
 despised by mankind,\
 exilants from the collective--\
@@ -81,9 +81,9 @@ O downtrodden!\
 O fallen\
 O my swindled little brothers!
 
-For your sake the pen grasped,\
-along the sky's paths\
-off going in a great hurry\
+For your sake, the pen grasped,\
+off along the sky's paths\
+going in a great hurry\
 the World-father's chariot wheels,\
 the chariot wheels' cataclysmic roar\
 down the Earthwards-path I shall set!\
@@ -114,7 +114,7 @@ skirmish, affray!\
 Uproar rages!\
 O downtrodden!\
 O fallen!\
-This is sacrifice*,\
+This is sacrifice* సవనం,\
 this is war!\
 This flying iron hawk,\
 this sprouted fire-harvest--\
